@@ -1,0 +1,1 @@
+This is the everyday Chocolate Cake I make over and over again. The crumb is tender and moist, it truly tastes of chocolate (rarer than you might think!) and you only need one bowl and a whisk. It's the famous Hershey's "Perfectly Chocolate" Cake , one of the few recipes I've used from another source with no changes to the ingredients at all (yes it's Perfect!)
